@@ -4,6 +4,8 @@
 
 Full-stack developer and founder. I build and ship software for studios, spas, clubs and small businesses in Vietnam.
 
+Top 10% of Lovable users (per Lovable, Oct 2026).
+
 [williamwells.vn](https://williamwells.vn) · [williamwells.vip](https://williamwells.vip) · [joinwgp.com](https://joinwgp.com)
 
 </div>
